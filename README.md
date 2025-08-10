@@ -1,1 +1,0 @@
-# innowise-delab-aug-2025_Artem_Denisenko
